@@ -1,4 +1,4 @@
-# :satisfied: S24
+# :sparkles: S24
 
 ## Digital Literacy and English Education
 
